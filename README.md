@@ -1,5 +1,5 @@
-# Alexis-New-Actualizacion
+# Bots
 
-Discord: [AA]Alexis_X#5882
+Discord: HideYoshi#7104
 
-suscribe: https://www.youtube.com/channel/UCh5X1IjfvpbL7NBbTkoD58g?view_as=subscriber
+suscribe: https://www.youtube.com/channel/UCUlp1mr5FCl1JR1t9-ZZ90A?view_as=subscriber
